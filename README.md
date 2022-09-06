@@ -1,1 +1,2 @@
-# OZAP-Cleaning-Service-
+# OZAP-Cleaning-Service
+The average cost of house cleaning is $90 to $150 and the average national hourly rate is $25 to $90 per cleaner. A single family home should cost $120 to $150 to clean, according to Home Advisor. Cleaners in Sydney like [OZAP Cleaning Service in Sydney](https://ozapcs.com.au/) on average charge $35 per hour. You can expect to pay $30 per hour on the low end and $60 on the high end. The type of cleaning service, the number of bedrooms/ bathrooms and the frequency of service are all factors to consider as they can affect the final cost of your cleaning service.
